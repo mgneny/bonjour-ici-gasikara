@@ -14,4 +14,4 @@ En tant que documentaliste, nous partageons les informations en interne en créa
 
 Pour voir une partie du travail que nous effectuons chaque jour, je vous invite à visiter notre [site web](http://www.agriculture.gov.mg/communication).
 
-Voici une ![photo du Centre](http://www.agriculture.gov.mg/communication/wp-content/uploads/sites/2/2015/09/PICT2704.jpg)
+Voici une ![photo du Centre](http://www.agriculture.gov.mg/communication/wp-content/uploads/sites/2/2015/09/PICT2705.jpg)
